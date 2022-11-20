@@ -1,4 +1,4 @@
-hi im milo,, 
+HELLOOO here's my abt me!!
 
 i'm an adult under 21, autistic, and a system. im a transmasc who goes by a lot of pronouns but mainly he him! yes i do use the term "i" and not just we. 
 
