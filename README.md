@@ -11,7 +11,9 @@ byi; i make a lot of jokes around death/my own self such as my sexuality or gend
 dni; basic dni (racist, homophobe, pedo, etc), phardcore enstarries, hardcore genshitters, hardcore south park fans (like the racist sh0tac0n people), a few more but ill just block you if you show those traits lol!
 
 alters; elias, aria
+
 fictives; kevin, angel devil
+
 hosts; kevin, elias
 
 not much else to say but PLEASEE interact with me if you want to, i love meeting people
