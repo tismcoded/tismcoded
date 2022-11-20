@@ -4,7 +4,7 @@ i'm an adult under 21, autistic, and a system. im a transmasc who goes by a lot 
 
 the name i use as a whole is milo so hi im milo
 
-fandoms i am apart of; fnaf, sm, dhmis, crk, pjsk, csm, enstars! i like a lot of things but thats the gist of it
+fandoms i am apart of; fnaf, csm, sm, dhmis, crk, pjsk, genshin, enstars! i like a lot of things but thats the gist of it
 
 byi; i make a lot of jokes around death/my own self such as my sexuality or gender etc etc! i can stop if told to
 
