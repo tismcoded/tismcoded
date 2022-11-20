@@ -2,7 +2,7 @@ HELLOOO here's my abt me!!
 
 i'm an adult under 21, autistic, and a system. im a transmasc who goes by a lot of pronouns but mainly he him! yes i do use the term "i" and not just we. 
 
-the name i use as a whole is milo.
+the name i use as a whole is milo so hi im milo
 
 fandoms i am apart of; fnaf, sm, dhmis, crk, pjsk, csm, enstars! i like a lot of things but thats the gist of it
 
